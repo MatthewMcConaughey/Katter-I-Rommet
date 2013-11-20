@@ -1,4 +1,4 @@
 Katter-I-Rommet
 ===============
 
-Wi zkal lage ein nettzide der wi hater på Mikael!
+4f 6c 61 20 73 75 67 65 72 20 74 69 73 73
